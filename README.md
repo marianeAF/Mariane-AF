@@ -5,6 +5,6 @@ utilizo meu espaço para minha organização e compartilhamento dos meu projetos
 
 Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+mariane00t@gmail.com
 
-@alurastartestudante
+@maryane.yxt
